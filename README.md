@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shiinetco call me sunshine or shine
+- 👀 I’m interested in toilet bound hanako kun and artist
+- 🌱 I’m currently learning draw and photography
